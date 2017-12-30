@@ -1,4 +1,6 @@
 #githubkdld
 eu amo meu momozinho:
 gostou do curso::
-meu amor é 10
+m
+meu amor é um idiota
+eu amor é 10
